@@ -1,2 +1,2 @@
 ## Welcome to my Page!
-My name is Adrian Vergara!
+My name is Adrian!
